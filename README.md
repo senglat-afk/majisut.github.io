@@ -1,0 +1,1 @@
+# majisut.github.io
